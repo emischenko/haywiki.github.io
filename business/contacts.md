@@ -21,7 +21,8 @@ layout: page
 - **Artyom Ghazaryan** - +37477765552, бухгалтер, также может помочь с регистрацией бизнеса.
 - **[Lusy Petrosyan](https://t.me/Lusy555)**
 - **[Maria Azatyan](https://t.me/Mariagenry)**
-
+- **Альберт Fast Accounting** - 
++37499662213
 [//]: # (- **[Lusine Tsaturyan]&#40;https://t.me/Lusine_Tsaturyan&#41;** — цены выше среднего, но очень развернутые консультации. удалено по просьбе)
 
 ## Источник информации
